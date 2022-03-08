@@ -1,3 +1,3 @@
 Our goal is to provide excellent custom product services to all of our customers as well as ensuring short production times and delivering high-quality products while maintaining diligent to all of our customers custom product needs including adding new custom product services to meet our customers custom product demands.
 
-Through our company profits, we're planning on contributing a percentage of our earnings into the cryptocurrency community by obtaining the latest hardware and equipment and operating multiple types of nodes to help maintain the security and integrity of the blockchain network. 
+Through using our company profits, we're planning on contributing a percentage of our earnings into the cryptocurrency community by obtaining the latest hardware and equipment and operating multiple types of nodes to help maintain the security and integrity of the blockchain network as well as contributing 100% voting shares to all of our voters. 
