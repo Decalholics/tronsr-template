@@ -8,4 +8,4 @@ Employee Benefits
 
 Meals and Travel Expenses
 
-Operating Costs for Cryptocurrency Master Node Servers (TBD)
+Operating Costs for Cryptocurrency Full Nodes, Super Nodes, and Masternodes (TBD)
