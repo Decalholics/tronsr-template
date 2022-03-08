@@ -1,1 +1,1 @@
-Describe the plan to support the community
+Our goal is to provide excellent custom product services to all of our customers as well as ensuring short production times and delivering high quality products while maintaining diligent to all of our customers custom product needs including adding new custom product services to meet our customers custom product demands.
